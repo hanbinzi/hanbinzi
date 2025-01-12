@@ -6,3 +6,5 @@
 <p align="center"> <a href="https://www.youtube.com/watch?v=U6pebMhOTJc"> 
  ꔫ
 <a>
+<p align="center"> <a href="https://www.patreon.com/c/user/about?u=83067218"> 
+patreon !
